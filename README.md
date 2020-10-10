@@ -1,3 +1,3 @@
-Personal readme hype but I'll add mine later.
+CTO @ selfmade.dev
 
 Eat plants 🌱
